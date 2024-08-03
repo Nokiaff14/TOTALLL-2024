@@ -1,1 +1,3 @@
 # TOTALLL-2024
+# DISCORD INVITE
+# https://discord.gg/D46K4A9Yw8
